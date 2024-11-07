@@ -10,6 +10,6 @@ Meu nome é Marcelo Paludetto
 
 luizgustavosilva12092@gmail.com
 
-@guxtzx77k
+@eu_romeroxz
 
 ![](https://tenor.com/pt-BR/view/goku-dragon-ball-z-dragon-ball-thumbs-up-approval-gif-5130883159510254210)
